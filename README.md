@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @410n
+- 👀 I’m interested in open source
+- 🌱 I’m always learning
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me @ tochukwuojinaka@punch.cool
